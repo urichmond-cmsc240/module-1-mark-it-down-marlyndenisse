@@ -3,9 +3,8 @@
 **mcalderon**
 ---
 **marlyndenisse**
-*she/hers*
-*Junior*
-*Computer science*
+Pronouns: *she/hers*
+Class of *2027*- *Computer science*
 
 1.baking
 2.making wire jewelry
