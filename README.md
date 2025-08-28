@@ -13,5 +13,7 @@ Hobbies:
 2. making wire jewelry
 3. reading
 Favorite movie:[shrek](https://www.dreamworks.com/movies/shrek)
-![download](https://github.com/user-attachments/assets/46750e92-03b1-4496-a1b8-25aa7ff8fb95)
+![shrek-gallery-3](https://github.com/user-attachments/assets/4a52389f-ebbf-4cb8-86d7-e8779cfebc74)
+
+
 
