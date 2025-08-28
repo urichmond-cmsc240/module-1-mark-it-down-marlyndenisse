@@ -5,6 +5,7 @@
 **marlyndenisse**
 Pronouns: *she/hers*
 Class of *2027*- *Computer science*
+![Marlyn](https://github.com/user-attachments/assets/bfccab4e-eaf5-4c25-9745-3e7860053007)
 
 1.baking
 2.making wire jewelry
